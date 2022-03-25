@@ -1,1 +1,0 @@
-# infolsco.github.io
